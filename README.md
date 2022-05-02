@@ -1,0 +1,3 @@
+- 👋 Hi, I am Alex and I am new on GitHub.
+- 👀 I’m interested in learning as much as possible about this world!
+- 
